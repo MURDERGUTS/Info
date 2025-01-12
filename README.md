@@ -1,14 +1,23 @@
 Names: Elliot, Steven, Emrott.
+
 Nationality: Filipino/Half American.
+
 Languages: Filipino, English (I speak mainly english. I dislike speaking Filipino).
+
 Country: Philippines.
+
 Religion: Catholic (But I don't follow the rules, I'm not that religious + I don't really have an opinion on God so uh... Atheist. Really. I'm just forced into religion).
+
 Gender: Trans guy.
-Pronouns: He/him/it.
+
 Sexuality: Aroace.
+
 Favorite Animals/Sea creatures: Corvids, goats(mainly Alpine goats), short-horned lizards, sharks, doves, black panthers.
+
 Favorite colors: All of them.
+
 Favorite season: Autumn/Winter. (Despite not having it here).
+
 Skills/Talents: Photoshopping, (dark) poetry, photography, writing(mostly about gore + dark topics. not in a fetishism way. that is DISGUSTING.., etc.
 
 Music Junkie. (I LOVE GRINDCORE/GORE HOP/HORRORCORE/BREAKCORE/FOOD POP/RAP/POP ROCK/ALT ROCK/AVANT-POP/PUNK ROCK/INDIE ROCK/ETC)
