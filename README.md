@@ -20,7 +20,7 @@ Favorite season: Autumn/Winter. (Despite not having it here).
 
 Skills/Talents: Photoshopping, (dark) poetry, photography, writing(mostly about gore + dark topics. not in a fetishism way. that is DISGUSTING.., etc.
 
-Music Junkie. (I LOVE GRINDCORE/GORE HOP/HORRORCORE/BREAKCORE/FOOD POP/RAP/POP ROCK/ALT ROCK/AVANT-POP/PUNK ROCK/INDIE ROCK/ETC)
+Music Junkie. (I LOVE GRINDCORE/GORE HOP/HORRORCORE/BREAKCORE/RAP/POP ROCK/ALT ROCK/AVANT-POP/PUNK ROCK/INDIE ROCK/ETC)
 
 I am a death metal fan! + Juggalo/Goth.
 Music Artists I listen to: MC Bushpig, Will Wood, Lemon Demon, Insane Clown Posse(ICP), Butchers Harem, Freddie Dredd, Jack Stauber, Slipknot, KORN,  PASSENGER OF SHIT, Sir Mix-a-lot, Alec Benjamin, Michael Jackson, ieuan, "Weird Al" Yankovic, Joey Valence & Brae, BJ Lips, etc.
