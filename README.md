@@ -1,4 +1,4 @@
-Names: Elliot, Steven, Emrott.
+Names(Aliases): Maggotfiedpig, Goldimire, MURDERGUTS, The Ratman
 
 Nationality: Filipino/Half American.
 
