@@ -1,4 +1,4 @@
-Names(Aliases): Maggotfiedpig, Goldimire, MURDERGUTS, The Ratman
+Names(Aliases): Maggotfiedpig, MURDERGUTS, The Ratman
 
 Nationality: Filipino/Half American.
 
